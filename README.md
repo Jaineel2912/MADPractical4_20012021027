@@ -7,3 +7,6 @@ Practical-4 completed
 ![Screenshot_2022-10-09-20-44-00-29_54063fc6848ac98a54ce5f2a63661433](https://user-images.githubusercontent.com/110598870/202943274-6d2395f1-8a0f-4bb6-8493-02eff63c5a81.jpg)
 ![Screenshot_2022-10-09-20-41-44-65_8ceee6849b8c4820d6837a47f7055a8f](https://user-images.githubusercontent.com/110598870/202943361-6d0da1c9-4ad3-49c3-a45c-4f861c6366cf.jpg)
 ![Screenshot_2022-10-09-20-42-01-47_21e8cabcf42c673ec340bb67ba55b55b](https://user-images.githubusercontent.com/110598870/202943367-7ac3eb88-7fdc-4cfd-8420-e766c75d35e0.jpg)
+![IMG_20221009_204324](https://user-images.githubusercontent.com/110598870/202943565-fbda694a-a502-4eb8-9fbb-33ed8189abe4.jpg)
+![Screenshot_2022-10-09-20-42-31-17_d1e180874abfbe4d796ce10558f8141a](https://user-images.githubusercontent.com/110598870/202943576-403b6e53-c53e-4a2d-b547-3ea11b306232.jpg)
+![Screenshot_20221010_040855](https://user-images.githubusercontent.com/110598870/202943617-2f4bc7ee-5c34-43b5-9d92-f48785ad6f90.png)
